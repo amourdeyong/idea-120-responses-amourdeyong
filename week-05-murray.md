@@ -1,0 +1,4 @@
+Murray's predictions about internet television and inhabiting virtual environments were successful.
+How does Murray's prediction compare to the hyper-realistic virtual environments the actors of 'The Mandalorian' inhabit while acting?
+Name and discuss the different layers of 'reality' both the actors and the viewers experience in the production.
+
