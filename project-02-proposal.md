@@ -1,6 +1,6 @@
 # Proposal  
 
-- takes place in space  
+- takes place in space, im thinking the galaxy  
 - play with scale (height), potentional:  
   - fruit duo  
     - apple and banana
@@ -8,5 +8,7 @@
   - englarged foods
     - spinning/rotating pizza
     - raining popcorn
-  - enlarged items
-    - high heel
+  - enlarged high heel
+  - minuscule planents
+- most likely using an adobe software
+- music, but playing in space
