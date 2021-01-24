@@ -22,7 +22,7 @@ Gesamtkunstwerk as different forms of art such as videos, music, sounds, photos,
 </p>
   
 <p>
-Regarding physical contemporary tools, the camera comes is what comes to mind as it is often used. Modern  
+Regarding physical contemporary tools, the camera is what comes to mind as it is often used. Modern  
 technological advancements have allowed the camera to not only capture a still shot but to record footages and pick  
 up audio as well. The way the camera gets utilized not only depends on the artist's intention and objective but  
 also the type of camera. Over the years, an enormous amount of cameras have been released with different ones for  
